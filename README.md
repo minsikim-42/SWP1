@@ -1,3 +1,3 @@
-20171187_KimMinSik
+20171187	KimMinSik
 
 Kookmin Univ. SW
